@@ -8,5 +8,5 @@ CEO
 penari 
 freelance 
 koki
-kritikus 
+
 beli banyak rumah
