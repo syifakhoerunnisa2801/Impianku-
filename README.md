@@ -5,5 +5,5 @@ penyanyi
 pelukis 
 content creator 
 CEO 
-guru
+
 freelance 
