@@ -8,5 +8,5 @@ CEO
 penari 
 freelance 
 koki
-
+beli jajan 
 beli banyak rumah
