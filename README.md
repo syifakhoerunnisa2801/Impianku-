@@ -8,3 +8,4 @@ CEO
 penari 
 freelance 
 koki
+kritikus 
