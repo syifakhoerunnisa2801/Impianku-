@@ -5,5 +5,6 @@ penyanyi
 pelukis 
 content creator 
 CEO 
-
+penari 
 freelance 
+koki
