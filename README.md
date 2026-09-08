@@ -10,3 +10,4 @@ freelance
 koki
 beli jajan 
 beli banyak rumah
+umrah Sama keluarga 
