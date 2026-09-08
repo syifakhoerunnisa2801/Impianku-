@@ -8,5 +8,5 @@ CEO
 penari 
 freelance 
 koki
-kritikus 
+beliin kemauan mmh
 beli banyak rumah
